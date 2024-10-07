@@ -96,7 +96,7 @@ With years of experience delivering high-quality web and app development solutio
 
 Choosing[ Sangvish](https://sangvish.com/) ensures you get a robust, feature-packed event booking script that enhances your business’s efficiency, improves customer experience, and helps maximize your event’s success.
 
-GET A LIVE FREE DEMO OF EVENT BOOKING SCRIPT HERE-> https://sangvish.com/event-booking-script/
+**GET A LIVE FREE DEMO OF EVENT BOOKING SCRIPT HERE-> https://sangvish.com/event-booking-script/**
 
 **Contact Us,**
 
